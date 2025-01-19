@@ -3,7 +3,6 @@
 **Data Analyst**
 
 **Location:** Belo Horizonte, MG, Brazil  
-**Phone:** +55 31 991293190  
 **Email:** [ms.roberta.ferreira@gmail.com](mailto:ms.roberta.ferreira@gmail.com)  
 **LinkedIn:** [linkedin.com/in/robertafgomes](https://linkedin.com/in/robertafgomes)  
 ---
